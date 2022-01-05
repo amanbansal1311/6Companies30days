@@ -1,0 +1,2 @@
+# 6Companies30days
+GOLDMANN SACH 15 QUESTIONS 
